@@ -1,4 +1,4 @@
-![Uploading yumi2.0.png…]()
+<img width="2048" height="1302" alt="yumi2 0" src="https://github.com/user-attachments/assets/4cbb730e-8474-48e7-aeba-545a99406f21" />
  wip??
 
 
