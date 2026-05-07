@@ -1,4 +1,4 @@
-## wip??https://cdn.discordapp.com/attachments/1318321242289475592/1502033366336274646/Untitled1093_20260507154413.png?ex=69fe3d14&is=69fceb94&hm=1f2477d60cc64af57592d7a9a080b7692926eb799f6b153ddd9852d0533a18fd&
+## wip?? ![Uploading jyumi.png…]()
 
 <!--
 **searayz/searayz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
