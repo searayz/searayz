@@ -1,4 +1,6 @@
-## wip?? ![Uploading jyumi.png…]()
+<img width="2048" height="1536" alt="jyumi" src="https://github.com/user-attachments/assets/3ff2defd-e89e-45d9-8f7b-6c8745066c84" />## wip??
+![Uploading jyumi.png…]()
+
 
 <!--
 **searayz/searayz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
