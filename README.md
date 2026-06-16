@@ -1,6 +1,5 @@
-<img width="2048" height="1293" alt="yumi3 0" src="https://github.com/user-attachments/assets/8feba854-ef5f-43ef-a74a-989e7b401f3d" />
- wip??
-
+im super friendly i promise,, please interact with me i have a hard time starting a conversation!!!
+i love frouse , tgc , cold ones , vanoss crew , sidemen , among us , minecraft youtube , minecraft ARGs and SO much more lolol
 
 
 <!--
