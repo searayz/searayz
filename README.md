@@ -1,5 +1,5 @@
 im super friendly i promise,, please interact with me i have a hard time starting a conversation!!!
-i love frouse , tgc , cold ones , vanoss crew , sidemen , among us , minecraft youtube , minecraft ARGs and SO much more lolol
+i love frouse , tgc , cold ones , vanoss crew , sidemen , among us , minecraft youtube+ARGs , callmekevin , dougdoug AND SOO MUCH MORE!
 
 
 <!--
